@@ -1,2 +1,1 @@
-# SomaD
-de arepentimiento
+te amo cariño
